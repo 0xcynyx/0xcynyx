@@ -2,4 +2,4 @@
 
 > *Back then, I was aiming to be a full-stack monarch. But now... whatever, such is life. Or am I already? HAHA*
 
-[✉️ mailme for any interesting or shady stuff](mailto:cindybtari@gmail.com)
+[✉️ mail me any interesting project or shady stuff](mailto:cindybtari@gmail.com)
